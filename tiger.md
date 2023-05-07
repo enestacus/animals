@@ -1,0 +1,3 @@
+# WHITE TIGER
+![white tiger](https://rare-gallery.com/mocahbig/1340459-White-Tiger-4k-Ultra-HD-Wallpaper.jpg)
+`The white tiger or bleached tiger is a leucistic pigmentation variant of the Mainland tiger. It is reported in the wild from time to time in the Indian states of Madhya Pradesh, Assam, West Bengal, Bihar, Odisha, in the Sunderbans region and especially in the former State of Rewa.[1] It has the typical black stripes of a tiger, but its coat is otherwise white or near-white.`
